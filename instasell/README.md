@@ -1,1 +1,0 @@
-# arutagerman.github.io/instasell
